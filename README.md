@@ -9,7 +9,7 @@
 
 **Talking about Personal Stuffs:**
 
-- 👨🏽‍💻  I’m currently working on optimizing algorithms for real life:. 
+- 👨🏽‍💻  I’m currently working on optimizing algorithms for real life. 
 - 💬  I am always happy to help you out :-)
 - 📫  How to reach me: maazbinasad29@gmail.com.
 
